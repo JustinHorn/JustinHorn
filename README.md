@@ -1,4 +1,4 @@
 Hey 👋🏻,
 
-I am Justin Horn,checkout my repos or my [portofolio](https://justinhorn.name/)
+I am Justin Horn,checkout my repos or my [portfolio](https://justinhorn.name/)
 
