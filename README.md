@@ -1,4 +1,4 @@
 Hey 👋🏻,
 
-I am Justin Horn,checkout my repos or my [portfolio](https://justinhorn.name/)
+I am Justin Horn 20yo software developer from Brunswick germany.
 
